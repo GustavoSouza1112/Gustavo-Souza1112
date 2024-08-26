@@ -8,7 +8,7 @@ Meu nome é Gustavo SOUZA👈👀
 
 
 
-![](https://tenor.com/kSn88hgw9fS.gif) 
+![](https://media.tenor.com/i711TDaTptUAAAC/naruto.gif) 
 
 
 
