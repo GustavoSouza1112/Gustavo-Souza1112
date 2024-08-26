@@ -6,7 +6,7 @@ Meu nome é Gustavo SOUZA👈👀
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-![](https://media.tenor.com/i7llTDaTptUAAAAC/naruto.gif) 
+![..](https://media.tenor.com/i7llTDaTptUAAAAC/naruto.gif) 
 
 
 
