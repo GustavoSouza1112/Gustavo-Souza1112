@@ -7,7 +7,7 @@ Meu nome é Gustavo SOUZA
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-![descrição do GIF](![image](https://github.com/user-attachments/assets/a98d0e31-e498-4f5d-9fa1-99ed4027e455))
+![descrição do GIF](![image](https://github.com/user-attachments/assets/a98d0e31-e498-4f5d-9fa1-99ed4027e455)
 
 
 
