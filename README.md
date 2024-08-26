@@ -7,7 +7,8 @@ Meu nome é Gustavo SOUZA👈👀
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-![...](https://github.com/user-attachments/assets/a98d0e31-e498-4f5d-9fa1-99ed4027e455)
+
+![](https://tenor.com/kSn88hgw9fS.gif) 
 
 
 
