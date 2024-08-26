@@ -6,7 +6,9 @@ Meu nome é Gustavo SOUZA
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-[![image](https://github.com/user-attachments/assets/ea8d2080-5246-4a2f-a160-46f56f80f0c6)]
+
+![descrição do GIF](![image](https://github.com/user-attachments/assets/a98d0e31-e498-4f5d-9fa1-99ed4027e455))
+
 
 
 
