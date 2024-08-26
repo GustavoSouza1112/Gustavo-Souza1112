@@ -7,7 +7,8 @@ Meu nome é Gustavo SOUZA👈👀
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-![](https://itunes.apple.com/app/apple-store/id917932200pt=39040802&ct=Media1GIFV2&mt=8) 
+![](![image](https://github.com/user-attachments/assets/9720158d-9090-46e7-bb24-050f41e8f7b5)
+
 
 
 
