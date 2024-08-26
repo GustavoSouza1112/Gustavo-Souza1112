@@ -7,7 +7,7 @@ Meu nome é Gustavo SOUZA👈👀
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-![..](https://media.tenor.com/i7llTDaTptUAAAAC/naruto.gif) 
+![](https://itunes.apple.com/app/apple-store/id917932200pt=39040802&ct=Media1GIFV2&mt=8) 
 
 
 
